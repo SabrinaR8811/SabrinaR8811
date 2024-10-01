@@ -1,4 +1,4 @@
-[KenmaHinata][Gif]
+![KenmaHinata][Gif]
 [KenmaHinata]:https://ibb.co/c1VNSgP
 ### Greetings human, I’m Sabrina!! Here's some things about me!! 🧡
 -  I'm interested in writing, making art, and making videos!! 📖 🎨 📽
