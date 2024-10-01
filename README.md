@@ -1,4 +1,6 @@
--  Greetings human, I’m Sabrina!! Here's some things about me!! 🧡
+[KenmaHinata][]
+[KenmaHinata]:KenmaHinata.gif
+### Greetings human, I’m Sabrina!! Here's some things about me!! 🧡
 -  I'm interested in writing, making art, and making videos!! 📖 🎨 📽
  - I'm currently learning how to make my own websites- one day I'll have a podcast with an actual website to go with it!!🎙️
 - You can reach me on Slack as SabrinaR8811⚡
