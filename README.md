@@ -1,11 +1,14 @@
 ![KenmaHinata][Gif]
 [KenmaHinata]:(https://media.tenor.com/c0gkOH-hN7QAAAAM/hinata-shouyou-kozume-kenma.gif)
 ### Greetings human, I’m Sabrina!! Here's some things about me!! 🧡
--  I'm interested in writing, making art, and making videos!! 📖 🎨 📽
- - I'm currently learning how to make my own websites- one day I'll have a podcast with an actual website to go with it!!🎙️
-- You can reach me on Slack as SabrinaR8811⚡
-- My Pronouns are she/her!!🌊
-- If you wanna talk about Haikyuu, PJO, or Hamilton, reach out to me!!🏐🔱⭐
+-Avid watcher of Haikyuu🏐
+-Avid reader of PJO🌊
+-Loves to write📖 
+-Loves to draw🎨
+-Has a secret Youtube channel📽
+-Plans on being a Journalist with a podcast🎙️
+-She/her Pronouns⭐
+-On slack as SabrinaR8811⚡
 
 <!---
 SabrinaR8811/SabrinaR8811 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
