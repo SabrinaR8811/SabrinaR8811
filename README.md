@@ -1,5 +1,4 @@
-![KenmaHinata][Gif]
-[KenmaHinata]:(https://media.tenor.com/c0gkOH-hN7QAAAAM/hinata-shouyou-kozume-kenma.gif)
+![A gif image](https://github.com/SabrinaR811.github.io/KenmaHinata.gif
 ### Greetings human, I’m Sabrina!! Here's some things about me!! 🧡
 -Avid watcher of Haikyuu🏐
 -Avid reader of PJO🌊
