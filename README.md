@@ -6,9 +6,13 @@
 -Loves to write📖 <br>
 -Loves to draw🎨<br>
 -Has a secret Youtube channel📽<br>
+-Believes in Cryptids and Aliens<br>
 -Plans on being a Journalist with a podcast🎙️<br>
 -She/her Pronouns⭐<br>
 -On slack as SabrinaR8811⚡<br>
+
+Now that we've gotten past the basic info, you can check out the rest of my page!! I'm currently a student, so right now it's just school stuff lol.<br>
+### IMPORTANT: If you are homophobic, racist, sexist, or a bigot in any way, get off my page. You're not allowed here.
 
 <!---
 SabrinaR8811/SabrinaR8811 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
