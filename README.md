@@ -8,6 +8,8 @@
 -Has a secret Youtube channel📽<br>
 -Believes in Cryptids and Aliens<br>
 -Plans on being a Journalist with a podcast🎙️<br>
+-Daydreams wayyyyy too much<br>
+-Identifies as Panromantic and Cupiosexual<br>
 -She/her Pronouns⭐<br>
 -On slack as SabrinaR8811⚡<br>
 
