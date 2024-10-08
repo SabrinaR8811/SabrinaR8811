@@ -2,6 +2,7 @@
 ### Greetings human, I’m Sabrina!! Here's some things about me!! 🧡
 -Avid watcher of Haikyuu🏐<br>
 -Avid reader of PJO🌊<br>
+-Avid listener of Lana Del Ray, Mother Mother, and The Crane Wives<br>
 -Loves to write📖 <br>
 -Loves to draw🎨<br>
 -Has a secret Youtube channel📽<br>
