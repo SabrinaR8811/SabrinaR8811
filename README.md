@@ -1,4 +1,5 @@
-![A gif image](https://github.com/img/KenmaHinata.gif)
+![Kenhinaship](https://github.com/user-attachments/assets/1cada2da-0efa-44bd-aa4b-7d4c97e6de43)
+
 ### Greetings human, I’m Sabrina!! Here's some things about me!! 🧡
 -Avid watcher of Haikyuu🏐<br>
 -Avid reader of PJO🌊<br>
