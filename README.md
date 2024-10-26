@@ -1,4 +1,6 @@
-![Kenhinaship](https://github.com/user-attachments/assets/1cada2da-0efa-44bd-aa4b-7d4c97e6de43)
+
+![KENHINA](https://github.com/user-attachments/assets/ed06b391-c3b2-42e9-84ff-117b9decdaf7)
+
 
 ### Greetings human, I’m Sabrina!! Here's some things about me!! 🧡
 -Avid watcher of Haikyuu🏐<br>
