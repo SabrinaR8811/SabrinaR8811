@@ -1,5 +1,4 @@
-
-![KENHINA](https://github.com/user-attachments/assets/ed06b391-c3b2-42e9-84ff-117b9decdaf7)
+![Pink Elegant Photo Collage Moodboard Instagram Post](https://github.com/user-attachments/assets/552edfeb-3b23-4038-b98a-e15530462cf1)
 
 
 ### Greetings human, I’m Sabrina!! Here's some things about me!! 🧡
