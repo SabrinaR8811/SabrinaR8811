@@ -3,15 +3,15 @@
 
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚<br>
       /)    /)<br>
-    (｡•ㅅ•｡)〝₎₎ Intro template! ✦₊ ˊ˗ <br>
+    (｡•ㅅ•｡)〝₎₎ Intro! ✦₊ ˊ˗ <br>
 . .╭∪─∪────────── ✦ ⁺.<br>
-. .┊ ◟﹫ Name : <br>
-. .┊﹒𐐪 Age : <br>
-. .┊ꜝꜝ﹒Pronouns :<br> 
-. .┊ ⨳゛Sexuality : <br>
-. .┊ ◟ヾ Likes : <br>
-. .┊﹒𐐪 Dislikes : <br>
-. .┊ ◟﹫ Extra : <br>
+. .┊ ◟﹫ Name : Sabrina<br>
+. .┊﹒𐐪 Age : 15<br>
+. .┊ꜝꜝ﹒Pronouns : she/her<br> 
+. .┊ ⨳゛Sexuality : Pan<br>
+. .┊ ◟ヾ Likes : Greek myths, soda, animals<br>
+. .┊﹒𐐪 Dislikes : Negativity, bigots, cheese<br>
+. .┊ ◟﹫ Extra : Secretly an aquatic alien<br>
    ╰─────────────  ✦ ⁺.<br>
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚<br>
 Now that we've gotten past the basic info, you can check out the rest of my page!! I'm currently a student, so right now it's just school stuff lol.<br>
