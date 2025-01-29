@@ -1,20 +1,19 @@
 ![Pink Elegant Photo Collage Moodboard Instagram Post](https://github.com/user-attachments/assets/552edfeb-3b23-4038-b98a-e15530462cf1)
 
 
-### Greetings human, I’m Sabrina!! Here's some things about me!! 🧡
--Avid watcher of Haikyuu🏐<br>
--Avid reader of PJO🌊<br>
--Avid listener of Lana Del Ray, Mother Mother, and The Crane Wives🎧<br>
--Loves to write📖 <br>
--Loves to draw🎨<br>
--Has a secret Youtube channel📽<br>
--Believes in Cryptids and Aliens<br>
--Plans on being a Journalist with a podcast🎙️<br>
--Daydreams wayyyyy too much🌈<br>
--Identifies as Panromantic and Cupiosexual🏳‍🌈<br>
--She/her Pronouns⭐<br>
--On slack as SabrinaR8811⚡<br>
-
+⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚<br>
+      /)    /)
+    (｡•ㅅ•｡)〝₎₎ Intro template! ✦₊ ˊ˗ 
+. .╭∪─∪────────── ✦ ⁺.
+. .┊ ◟﹫ Name : 
+. .┊﹒𐐪 Age : 
+. .┊ꜝꜝ﹒Pronouns : 
+. .┊ ⨳゛Sexuality : 
+. .┊ ◟ヾ Likes : 
+. .┊﹒𐐪 Dislikes : 
+. .┊ ◟﹫ Extra : 
+   ╰─────────────  ✦ ⁺.
+⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚
 Now that we've gotten past the basic info, you can check out the rest of my page!! I'm currently a student, so right now it's just school stuff lol.<br>
 ### IMPORTANT: If you are homophobic, racist, sexist, or a bigot in any way, get off my page. You're not allowed here.
 
