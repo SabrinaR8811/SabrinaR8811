@@ -11,7 +11,7 @@
 . .┊ ⨳゛Sexuality : Pan<br>
 . .┊ ◟ヾ Likes : Greek myths, soda, animals<br>
 . .┊﹒𐐪 Dislikes : Negativity, bigots, cheese<br>
-. .┊ ◟﹫ Extra : Secretly an aquatic alien<br>
+. .┊ ◟﹫ Extra : Silly Goose vibes 24/7 =P<br>
    ╰─────────────  ✦ ⁺.<br>
 ⧣₊˚﹒✦₊  ⧣₊˚  𓂃★    ⸝⸝ ⧣₊˚﹒✦₊  ⧣₊˚<br>
 Now that we've gotten past the basic info, you can check out the rest of my page!! I'm currently a student, so right now it's just school stuff lol.<br>
